@@ -20,7 +20,11 @@ links to anything you need just get them here
 
 HEY GYATTE GIRL LOL THIS IS NEWWWW W IN THE CHATTTT SO THE LOGIN will be hmmmmm let me see
 
-just make a new one or login with google
-also if u need at school
-u can use this one
-womp womp geme a day
+so bascily what u need to do is
+go to this link on ur browser https://www.emailnator.com/inbox/k.a.n.exmarcu.s@gmail.com/MTkxNzhhOGE1NWU5YTI0OQ==
+and this link here
+[free poe](https://poe.com/login)
+
+![image](https://github.com/user-attachments/assets/cf688ef7-7bd0-454f-84c7-ce65e56014cc)
+
+now look u need to click the first one and boom u enter number in poe and ur done lol it good
