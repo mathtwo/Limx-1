@@ -1,16 +1,27 @@
-## Hi there 👋
+links to anything you need just get them here
 
-<!--
-**mathtwo/mathtwo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[Proxy freecodecamp.cf](https://freecodecamp.cf/)
 
-Here are some ideas to get you started:
+[games gladihopers https://gladihoppers.github.io/](https://gladihoppers.github.io/)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[Games Shadowgames https://shadowgmes.github.io/](https://shadowgmes.github.io/)
+
+[Games like a lot ect https://tylerpalko.github.io/](https://tylerpalko.github.io/)
+
+[Skiovox a hack for school chromebooks dose not work in sms or fms dont try out https://www.youtube.com/watch?v=sD2E5mOeD-4&t=3s](https://www.youtube.com/watch?v=sD2E5mOeD-4&t=3s)
+
+[google google.com](https://www.google.com/)
+
+[apponfly windows os](https://app.apponfly.com/trial)
+
+[t mobile login](http://192.168.0.1)
+
+[chatGPT](https://chatgpt.com/)
+
+HEY GYATTE GIRL LOL THIS IS NEWWWW W IN THE CHATTTT SO THE LOGIN will be hmmmmm let me see
+
+just make a new one or login with google
+also if u need at school
+u can use this one
+
+[freedom gpt](https://chat.freedomgpt.com/)
