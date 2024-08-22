@@ -23,5 +23,4 @@ HEY GYATTE GIRL LOL THIS IS NEWWWW W IN THE CHATTTT SO THE LOGIN will be hmmmmm 
 just make a new one or login with google
 also if u need at school
 u can use this one
-
-[freedom gpt](https://chat.freedomgpt.com/)
+womp womp geme a day
