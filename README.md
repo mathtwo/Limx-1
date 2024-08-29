@@ -35,7 +35,14 @@ new update hiba and omar u lil dumb boes
 
 we got geogeuesser cuz its paid 
 
-[geogeusesser](https://docs.google.com/document/d/1LDrUZhaxQ-JQK2TiXpkE9-d0K82ocnBTEkutF2y8Erg)
+so baicly its on ur drive what u need to do is open ur brower and go to ur serch bar and search this Geoguessr
+
+![Screenshot 2024-08-28 6 00 08 PM](https://github.com/user-attachments/assets/070aef31-8655-4fa5-baf9-7e91c7ffeb01)
+
+and go to this one
+
+![image](https://github.com/user-attachments/assets/38f15365-5fd0-4d32-87d4-8b6875844caf)
+and click any and u got it 
 
 and i am trying to make a new glitch
 with sining in cuz there was a lil issuge LOL
