@@ -28,3 +28,16 @@ and this link here
 ![image](https://github.com/user-attachments/assets/cf688ef7-7bd0-454f-84c7-ce65e56014cc)
 
 now look u need to click the first one and boom u enter number in poe and ur done lol it good
+
+
+
+new update hiba and omar u lil dumb boes
+
+we got geogeuesser cuz its paid 
+
+[geogeusesser](https://docs.google.com/document/d/1LDrUZhaxQ-JQK2TiXpkE9-d0K82ocnBTEkutF2y8Erg)
+
+and i am trying to make a new glitch
+with sining in cuz there was a lil issuge LOL
+
+they i got to fart in my face
